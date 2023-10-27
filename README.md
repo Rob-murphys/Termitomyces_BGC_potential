@@ -1,0 +1,1 @@
+# Termitomyces_BGC_potential
